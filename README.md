@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ishansingh3091@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-93LMhQ3EBL66QzBFPM4VwSrxUK-nWro/view?usp=drivesdk](https://drive.google.com/file/d/1-93LMhQ3EBL66QzBFPM4VwSrxUK-nWro/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1M6vli2BS2yUFs8Cuh2VbbL0ZORhf3ymN/view?usp=drivesdk]
 
 - ⚡ Fun fact **I think I am funny**
 
